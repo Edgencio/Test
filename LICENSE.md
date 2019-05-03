@@ -1,2 +1,2 @@
 
-Copyright (C) 2019 
+Copyright (Edgêncio) 2019 
